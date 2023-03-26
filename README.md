@@ -1,0 +1,2 @@
+# ama
+Penanaman dan Pemasaran
